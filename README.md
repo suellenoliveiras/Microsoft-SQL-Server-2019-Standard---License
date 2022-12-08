@@ -3,7 +3,8 @@ Microsoft SQL Server 2019 Standard - License Download Free Activation Cracked
 
 Microsoft SQL Server 2019 Standard Version Cracked Free
 
-![share-from-sign-1](https://user-images.githubusercontent.com/118136220/206370199-b0f43a65-c5fb-4b56-9c83-da07ca7d2ea5.jpeg)
+
+![s-l400](https://user-images.githubusercontent.com/118136220/206376072-503659e3-24d2-4a4f-b1c3-d629bb0444e7.jpg)
 
 # Nitro PDF Pro® + Nitro Sign® Download Free
 
